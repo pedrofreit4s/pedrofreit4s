@@ -3,6 +3,6 @@
 https://dribbble.com/agencysirus
 
 
-## Gostou doque viu?
+## Gostou do que viu?
 - Entre em contato
  -  Whatsapp: https://wa.me/5575992352499
